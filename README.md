@@ -1,0 +1,2 @@
+# Zigzag
+privacy policy
